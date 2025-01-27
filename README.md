@@ -15,7 +15,7 @@
 
 - 📝 I regularly write articles on [blog.anikchowdhury.com](blog.anikchowdhury.com)
 
-- 📫 How to reach me **anikchy2140@gmail.com**
+- 📫 How to reach me **anik.chowdhury0302@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
